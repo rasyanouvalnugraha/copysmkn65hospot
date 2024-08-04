@@ -1,0 +1,1 @@
+# copysmkn65hospot
